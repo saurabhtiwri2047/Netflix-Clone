@@ -1,1 +1,0 @@
-Watch Netflix on your smartphone, table, Smart TV ,laptop,or streaming device, all for one fixed monthly fee. Plans range from 149 to 649 a month.No extra costs,no contacts
